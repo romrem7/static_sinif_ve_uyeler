@@ -1,0 +1,1 @@
+# static_sinif_ve_uyeler
